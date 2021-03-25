@@ -1,0 +1,2 @@
+# otabekning-darsi
+shavkat mirziyoyev
